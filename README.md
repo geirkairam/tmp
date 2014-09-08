@@ -1,0 +1,2 @@
+Informationen zum Original Freiunk Flyer für Büger von [SuddenGrey](https://twitter.com/SuddenGrey) befinden sich [hier](http://www.suddengrey.de/2013/04/29/teilen-freifunk-allmende/). Für Möhne wurden Webadressen entsprechend angepasst. Der Flyer ist Lizensiert unter  [Creative Commons Namensnennung - Weitergabe unter gleichen Bedingungen 4.0 International Lizenz](http://creativecommons.org/licenses/by-sa/4.0/)
+
